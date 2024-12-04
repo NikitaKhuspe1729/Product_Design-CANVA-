@@ -10,4 +10,3 @@ https://github.com/NikitaKhuspe1729/Product_Design-CANVA-/assets/125488086/6f2f4
 
 ![aptcoder](https://github.com/NikitaKhuspe1729/Product_Design-CANVA-/assets/125488086/82c4bab4-4d70-469c-8ac8-2c6a42e4dc0f)
 
-![poster1](https://github.com/NikitaKhuspe1729/Product_Design-CANVA-/assets/125488086/09a17da6-2c8a-4630-9915-41ee67cbaa5f)
