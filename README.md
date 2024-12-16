@@ -1,5 +1,5 @@
 # Product_Design-CANVA-
-
+Product designs under some assignments using Canva.
 
 
 https://github.com/NikitaKhuspe1729/Product_Design-CANVA-/assets/125488086/135e53cd-5574-475b-9a6b-d23d22cfe551
